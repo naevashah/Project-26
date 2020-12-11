@@ -1,0 +1,1 @@
+This is a recipe to make a strawberry banana smoothie for one person, using the ingredients and a blender.
